@@ -1,5 +1,5 @@
 - hi guys! I’m truper.
-- i like games, especially arras.io.
+- i do a lot of things.
 - you can check these links there!
 - bruh
 <!---
